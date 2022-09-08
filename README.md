@@ -13,17 +13,17 @@
   
   <li>Does your credit card’s interest rate matter? - <a href="https://lexarate.com/does-your-credit-cards-interest-rate-matter/">Does your credit card’s interest rate matter?</a></li> 
   
-  <li>Preparing for your Financial Future - <a href="https://lexarate.com/preparing-for-your-financial-future/">Preparing for your Financial Future</a></li>
+<li>Preparing for your Financial Future - <a href="https://lexarate.com/preparing-for-your-financial-future/">Preparing for your Financial Future</a></li>
   
 <li>What is the National Credit Union Administration? - <a href="https://lexarate.com/what-is-the-national-credit-union-administration">What is the National Credit Union Administration?</a></li>
   
-  <li>Why you should know what a Credit Union does - <a href="https://lexarate.com/why-you-should-know-what-a-credit-union-does/">Why you should know what a Credit Union does</a></li>
+<li>Why you should know what a Credit Union does - <a href="https://lexarate.com/why-you-should-know-what-a-credit-union-does/">Why you should know what a Credit Union does</a></li>
   
-  <li>Best ways to save Money for a House – Saving Advice- <a href="https://lexarate.com/best-ways-to-save-money-for-a-house-saving-advice/">Best ways to save Money for a House – Saving Advice</a></li>
+<li>Best ways to save Money for a House – Saving Advice- <a href="https://lexarate.com/best-ways-to-save-money-for-a-house-saving-advice/">Best ways to save Money for a House – Saving Advice</a></li>
   
-  <li>All about Mortgage Down Payments - <a href="https://lexarate.com/all-about-mortgage-down-payments/">All about Mortgage Down Payments</a></li>
+<li>All about Mortgage Down Payments - <a href="https://lexarate.com/all-about-mortgage-down-payments/">All about Mortgage Down Payments</a></li>
   
-    <li>Building your Credit Score - <a href="https://lexarate.com/building-your-credit-score/">Building your Credit Score</a></li>
+<li>Building your Credit Score - <a href="https://lexarate.com/building-your-credit-score/">Building your Credit Score</a></li>
   
 <li>What is Mortgage Pre-Approval? - <a href="https://lexarate.com/what-is-mortgage-pre-approval/">What is Mortgage Pre-Approval?</a></li>
   
